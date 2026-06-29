@@ -1,4 +1,4 @@
-# 
+# Élite pump.fun sniper bot complementos para Mac OS | Oficial pump.fun sniper bot complementos para PC Windows. Con manejo de revert y conectividad Web3 — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
